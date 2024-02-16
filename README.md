@@ -1,0 +1,2 @@
+# ghostxddos
+t.me/GXDDOS
